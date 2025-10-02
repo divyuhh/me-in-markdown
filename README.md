@@ -10,4 +10,4 @@ My favorite movie is the Parent Trap. I like this movie because it has a mix of 
 ## My Playlist
 [This is my spotify playlist!](https://open.spotify.com/playlist/5eow3ikLZJyCv2GLL7mDz6?si=8UWB5Jz7Q7eenHTq3Zry_g)
 ## Collage / Mood Board
-![collage](<Brown and Yellow Collage Style Summer Memories Presentation.png>))
+![collage](<https://www.canva.com/design/DAGwexjiojc/WKH0-lmy99l0xlVHrjHKXQ/edit?utm_content=DAGwexjiojc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton>))
